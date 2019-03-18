@@ -1,3 +1,3 @@
 # alssc.github.io
 
-yeehaw
+yeehaww
